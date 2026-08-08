@@ -39,35 +39,35 @@
 
 That's a great question.
 
-I've been really into Korean hip-hop since I was young, and if I had to choose just one artist, it'd definitely be Beenzino.
+I've been really into Korean hip-hop / since I was young, / and if I had to choose just one artist, / it'd definitely be Beenzino.
 
-He's a Korean rapper, and I've been listening to his music for years. Even now, he's still my favorite artist.
+He's a Korean rapper, / and I've been listening to his music / for years. / Even now, / he's still my favorite artist.
 
-What I like most about him is his unique voice and his polished rap style. I also love how he mixes jazz hip-hop with modern hip-hop. His music always sounds fresh, so I never get tired of listening to it.
+What I like most about him / is his unique voice / and his polished rap style. / I also love / how he mixes jazz hip-hop / with modern hip-hop. / His music always sounds fresh, / so I never get tired / of listening to it.
 
-My favorite album is **24:26**. I've listened to every song on that album many times because the lyrics really resonate with me. They talk about youth and everyday life, so I can relate to them.
+My favorite album / is **24:26**. / I've listened to every song on that album / many times / because the lyrics really resonate with me. / They talk about youth and everyday life, / so I can relate to them.
 
-I usually put on his music while I'm working out, driving, or taking a walk. It helps me relax, and it always puts me in a good mood.
+I usually put on his music / while I'm working out, driving, or taking a walk. / It helps me relax, / and it always puts me / in a good mood.
 
-If I had to describe Beenzino in one sentence, I'd say his music has been the soundtrack to my youth.
+If I had to describe Beenzino / in one sentence, / I'd say / his music has been / the soundtrack to my youth.
 
-That's why he'll probably always be my favorite artist.
+That's why / he'll probably always be / my favorite artist.
 
 ---
 
 ## Expansion Block A (좋아하는 노래)
 
-The first song that really got me into his music was **Aqua Man**.
+The first song / that really got me into his music / was **Aqua Man**.
 
-I remember listening to it over and over again because the beat was so catchy. After that, I started checking out his other songs, and that's how I became a huge fan of his music.
+I remember listening to it / over and over again / because the beat was so catchy. / After that, / I started checking out his other songs, / and that's how / I became a huge fan / of his music.
 
 ---
 
 ## Expansion Block B (음악 스타일)
 
-One thing I really like is that every song has a different vibe.
+One thing I really like / is that every song has a different vibe.
 
-Some songs are fast-paced and energetic, while others have a slower and more relaxing mood. That's one of the reasons I never get bored of listening to his music.
+Some songs are fast-paced and energetic, / while others have / a slower and more relaxing mood. / That's one of the reasons / I never get bored / of listening to his music.
 
 ---
 
